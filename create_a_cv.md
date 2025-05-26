@@ -1,5 +1,7 @@
 ## ⭐ Create a CV – STAR Reflection
 
+<a href="https://ibb.co/ym2fMvrx"><img src="https://i.ibb.co/TDyvnjsN/CREATE-A-CV.png" alt="CREATE-A-CV" border="0"></a>
+
 **S – Situation:**  
 I was tasked with developing a professional CV for potential job applications in the IT industry.
 
