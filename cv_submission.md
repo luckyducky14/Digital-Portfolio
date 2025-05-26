@@ -1,5 +1,7 @@
 ## ⭐ CV Submission – STAR Reflection
 
+<a href="https://ibb.co/pjYFwScn"><img src="https://i.ibb.co/fdjwFsfQ/CV-SUBMISSION.png" alt="CV-SUBMISSION" border="0"></a>
+
 **S – Situation:**  
 After creating my CV, I submitted it through the required platform as part of my course submission.
 
