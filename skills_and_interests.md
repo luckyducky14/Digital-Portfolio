@@ -1,5 +1,7 @@
 ## ⭐ Skills and Interests – STAR Reflection
 
+<a href="https://ibb.co/LhcHKpkH"><img src="https://i.ibb.co/931SPY8S/SKILLS-AND-INTERESTS.png" alt="SKILLS-AND-INTERESTS" border="0"></a>
+
 **S – Situation:**  
 I participated in a self-assessment exercise to explore my skills, interests, and values as part of my career development course.
 
