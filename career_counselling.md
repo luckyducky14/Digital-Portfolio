@@ -1,6 +1,6 @@
 ## ⭐ Career Counselling – STAR Reflection
 
-(<a href="https://ibb.co/YVyDgx1"><img src="https://i.ibb.co/CSMJLfY/CAREER-COUNSELLING.png" alt="CAREER-COUNSELLING" border="0"></a>)
+<a href="https://ibb.co/YVyDgx1"><img src="https://i.ibb.co/CSMJLfY/CAREER-COUNSELLING.png" alt="CAREER-COUNSELLING" border="0"></a>
 
 **S – Situation:**  
 As part of my career preparation coursework, I completed a Career Development module that included key concepts around career planning, goal setting, counselling, and identifying hard and soft skills.
