@@ -1,8 +1,6 @@
 # Digital-Portfolio
 
 <h1>Hi, I'm Luvo Nana!<br/>
-  <a href="mailto:751luvonana@gmail.com">Software Developer</a>, 
-  <a href="https://www.linkedin.com/in/YOUR-LINKEDIN-HERE">ICT Student</a>, 
 </h1>
 
 <h2>🎓 Education:</h2>
