@@ -1,6 +1,6 @@
 ## ⭐ Interview Skills – STAR Reflection  
 
-<a href="C:\Users\kjuth\Pictures\Screenshots\Screenshot 2025-10-18 192258.png"><img src="C:\Users\kjuth\Pictures\Screenshots\Screenshot 2025-10-18 192258.png" alt="INTERVIEW-SKILLS" border="0"></a>  
+<a href='https://postimg.cc/238gjYs0' target='_blank'><img src='https://i.postimg.cc/238gjYs0/Screenshot-2025-10-18-192258.png' border='0' alt='Screenshot-2025-10-18-192258'/></a>
 
 **S – Situation:**  
 As part of my career preparation coursework, I completed a module focused on **Interview Skills**, which covered how to prepare for interviews, answer questions effectively, and present myself professionally.  
